@@ -1,2 +1,3 @@
 # SwordNovel
-A terrible online novel idea I have that can come to fruition here?
+This is what happens when an incompetent writer tries to create a novel...
+TT_TT
